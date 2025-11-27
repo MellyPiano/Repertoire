@@ -1,9 +1,14 @@
 # Piano Repertoire 
 • "School Day 1" - Only Wednesday
+
 • "Your Reality" - Dan Salvato
+
 • "Nia ~ Toward the Heavens" - ACE
+
 • "Where We Used to Be" - Yasunori Mitsuda
+
 • "Desolation" - ACE
+
 • "Prelude in E Minor, Op. 28, No. 4" - Fryderyk Franciszek Chopin
 
 # Requests
